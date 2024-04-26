@@ -5,10 +5,10 @@
 ## Education
 
 🎓 **Faculty of Computing, Belgrade** (Oct 2023 — expected graduation in 2026)\
-***B.S.*** **Computer Science**
+**Computer Science**
 
 🎓 **Elektrotehnicka skola Zemun, Zemun** (Sep 2019 — Jun 2023)\
-***B.S.*** **Electrical engineer - Informational Technologies**
+**Electrical engineer - Informational Technologies**
 
 ---
 
