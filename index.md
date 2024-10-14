@@ -14,7 +14,7 @@
 
 ## Voluntieering
 
-🔧 **AS Nesa**, Belgrade, Serbia (Feb 2024 — Present)\
+🔧 **AS Nesa**, Belgrade, Serbia (Feb 2024 — Oct 2024)\
 **Car mechanic**
 
 ---
